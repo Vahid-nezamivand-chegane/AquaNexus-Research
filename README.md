@@ -55,7 +55,10 @@ Radioactive Waste Immobilization · Self-Sufficient Building Systems · Regenera
 | :---: | :--- |
 | 2024 | 🥇 Energy Globe Award (National Winner) |
 | 2026 | 🥈 Zayed Sustainability Prize (Semi-Finalist) |
-| 2026 | 🥉 Temasek Liveability Challenge (Top 8) |
+| 2026 | 🥉 Temasek Liveability Challenge (Top 8 Finalist) |
+| 2026 | 💧 GPIW 2026 (Selected Innovator, Saudi Water Authority) |
+| 2026 | 🎓 Humboldt Research Fellowship 2026 (Offered) |
+| 2026 | 🌍 Gulbenkian Prize for Humanity 2026 (Nominee) |
 
 ---
 
